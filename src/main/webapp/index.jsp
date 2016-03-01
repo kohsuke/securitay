@@ -1,4 +1,2 @@
-<html><body><h2>"Mom?.."
-Kelsey bumped the door with her fingers, knocking with pushes rather than knuckles.
-The door slowly clicked opened.
-"Mom?"</h2></body></html>
+<html><body><h2>There were steps outside. "Kelsey?"
+Mark paused at the door. "No." He rushed to sweep Kelsey in his arms, looking at his wife on the floor.</h2></body></html>
