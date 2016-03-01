@@ -1,1 +1,4 @@
-<html><body><h2>@Chaotic_Cobalt all my stories are individual works.</h2></body></html>
+<html><body><h2>"Anything you like."
+Kelsey looked down and thought. Ambulance sirens activated miles away. "I want one with a happy ending."
+
+//END</h2></body></html>
