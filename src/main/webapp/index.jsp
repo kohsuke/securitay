@@ -1,1 +1,1 @@
-<html><body><h2>I'm not at RSA; nobody even invited me. How come Lil Bow Wow gets invited and I don't? =(</h2></body></html>
+<html><body><h2>RT @CSMPasscode: We're watching @HouseJudiciary hearing on #AppleVsFBI & encryption. Follow us for tweets!</h2></body></html>
