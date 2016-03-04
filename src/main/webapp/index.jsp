@@ -1,1 +1,3 @@
-<html><body><h2>To get past a CAPTCHAs, you actually have to enter the correct answer. I think that's what a lot of Tor users don't understand.</h2></body></html>
+<html><body><h2>"You were red and you liked me because I was blue
+You touched me
+And you decided purple just wasn't for you"</h2></body></html>
