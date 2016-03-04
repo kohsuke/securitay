@@ -1,3 +1,1 @@
-<html><body><h2>"You were red and you liked me because I was blue
-You touched me
-And you decided purple just wasn't for you"</h2></body></html>
+<html><body><h2>Palo Alto firewalls didn't know how to update on leap day | @DanielMiessler | https://t.co/2Firv3xqS2</h2></body></html>
