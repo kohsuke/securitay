@@ -1,1 +1,1 @@
-<html><body><h2>This dweller knows how to react to being locked in a vault. https://t.co/j6y6hyxD4s</h2></body></html>
+<html><body><h2>To get past a CAPTCHAs, you actually have to enter the correct answer. I think that's what a lot of Tor users don't understand.</h2></body></html>
