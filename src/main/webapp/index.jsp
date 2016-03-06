@@ -1,1 +1,1 @@
-<html><body><h2>RT @dinodaizovi: Apple has invented the future a few times. It was visible with the Macintosh, but it was invisible with the security of iO…</h2></body></html>
+<html><body><h2>@Thomas_Drake1 I have a few tweets on the different briefs filed in support of Apple</h2></body></html>
