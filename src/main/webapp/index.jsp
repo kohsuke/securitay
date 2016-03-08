@@ -1,1 +1,1 @@
-<html><body><h2>Can you park in the handicapped spot if you own the parking lot</h2></body></html>
+<html><body><h2>Apple Maps was Steve Jobs' obituary.</h2></body></html>
