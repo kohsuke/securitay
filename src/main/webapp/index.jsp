@@ -1,1 +1,1 @@
-<html><body><h2>RT @codinghorror: Imagine the joy in your children's eyes when you unveil this on family board game night https://t.co/3XUEbHe2MX https://t…</h2></body></html>
+<html><body><h2>CORRECTION: I've been told Linux actually supports some sound cards. I apologize for the error. https://t.co/iuKsiTfaeQ</h2></body></html>
