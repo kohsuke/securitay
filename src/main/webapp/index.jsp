@@ -1,1 +1,1 @@
-<html><body><h2>CORRECTION: I've been told Linux actually supports some sound cards. I apologize for the error. https://t.co/iuKsiTfaeQ</h2></body></html>
+<html><body><h2>.@Jacob_Carew Alchohol doesn't really work on me. It just makes me hot and sleepy. I'm bad at InfoSec 😕</h2></body></html>
