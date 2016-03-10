@@ -1,1 +1,1 @@
-<html><body><h2>RT @da_667: When you tell Linux jokes and get corrected. MAN I SURE GOT TOLD. https://t.co/Hk5TLogPWc</h2></body></html>
+<html><body><h2>"Cortana, you've access to every piece of human literature, the term papers of philosophy students are yours to peruse. Why ask me?"</h2></body></html>
