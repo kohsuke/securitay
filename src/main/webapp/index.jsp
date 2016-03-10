@@ -1,4 +1,1 @@
-<html><body><h2>"Believed what?"
-"That my opinion mattered."
-
-//END</h2></body></html>
+<html><body><h2>@TheElmagoo thanks</h2></body></html>
