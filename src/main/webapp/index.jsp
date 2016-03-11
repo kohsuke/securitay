@@ -1,1 +1,1 @@
-<html><body><h2>RT @eksith: @SwiftOnSecurity https://t.co/QVIin9SIAR</h2></body></html>
+<html><body><h2>They should have used Microsoft Azure Rights Management in Office 365 to allow for seamless DLP with Office docs. https://t.co/B9SUX3hskA</h2></body></html>
