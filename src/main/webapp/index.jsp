@@ -1,1 +1,1 @@
-<html><body><h2>I don't like Linux because what if something goes wrong - who am I going to call, 4chan? With Microsoft I know I'll be taken care of.</h2></body></html>
+<html><body><h2>@securitybrew @hacks4pancakes @RoniShayne Its the kind of story that makes you want to track someone down and just straight up murder them.</h2></body></html>
