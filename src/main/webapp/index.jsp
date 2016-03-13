@@ -1,1 +1,1 @@
-<html><body><h2>RT @gorhill: Beware: higher count of blocked requests doesn't inevitably mean better protection: Opera=46 uBO=20, yet see pic... https://t.…</h2></body></html>
+<html><body><h2>This is basically how you stop ransomware. https://t.co/mEIyuS7RG4</h2></body></html>
