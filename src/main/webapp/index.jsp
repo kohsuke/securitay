@@ -1,1 +1,1 @@
-<html><body><h2>@jaycrossler @Therajill check out my "project silica" list for some women in tech, see @AstroKatie for lady scientists I think?</h2></body></html>
+<html><body><h2>@MarkTHrisho California is pretty lenient, I've heard it's pretty tough in some states</h2></body></html>
