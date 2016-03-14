@@ -1,1 +1,1 @@
-<html><body><h2>RT @josephfcox: For most people, autoupdates are crucial for their device security. Turning off updates is irrational and dangerous https:/…</h2></body></html>
+<html><body><h2>RT @WrrrdNrrrdGrrrl: Um...excuse me, Amazon seller, but I think about a third of your model is missing. https://t.co/ST8nWDxACu</h2></body></html>
