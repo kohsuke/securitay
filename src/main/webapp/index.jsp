@@ -1,1 +1,2 @@
-<html><body><h2>Amazon sucks at naming products like Microsoft sucks at buying companies</h2></body></html>
+<html><body><h2>10 years of utterly terrible names for awesome products: Amazon Web Services turns 10
+https://t.co/BHtAOgFFdq</h2></body></html>
