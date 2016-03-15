@@ -1,1 +1,1 @@
-<html><body><h2>@randall_king not in Office 365</h2></body></html>
+<html><body><h2>Amazon sucks at naming products like Microsoft sucks at buying companies</h2></body></html>
