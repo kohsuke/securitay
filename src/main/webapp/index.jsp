@@ -1,2 +1,1 @@
-<html><body><h2>Just got a marketing email: 
-"Choosing the right secure file transfer solution is critical to organizational success."</h2></body></html>
+<html><body><h2>RT @InfoSecSherpa: @SwiftOnSecurity you should have told me that you're in town ;) https://t.co/opkIcAMFka</h2></body></html>
