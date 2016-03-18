@@ -1,1 +1,1 @@
-<html><body><h2>RT @SimoneGiertz: Have finally gotten around to making a Youtube channel trailer! 🆒➡️ https://t.co/Bn74iMcIEB 👑💩🤖</h2></body></html>
+<html><body><h2>Sometimes I worry I don't have the answers. Then I cheer up, because at least I'm not an economist.</h2></body></html>
