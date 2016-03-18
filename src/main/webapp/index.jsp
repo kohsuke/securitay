@@ -1,1 +1,1 @@
-<html><body><h2>The Wikipedia article for Adblock Plus includes instructions on how to block Wikipedia donation requests https://t.co/EXnf9CFCQj</h2></body></html>
+<html><body><h2>RT @nocompunction: CRN Exclusive: Alphabet's Google lands Apple as cloud customer, and Apple also reduces its reliance on AWS https://t.co/…</h2></body></html>
