@@ -1,1 +1,1 @@
-<html><body><h2>When the user wants admin so they can install a program for their job, which turns out to be pirated Photoshop https://t.co/PBXYCbu2UA</h2></body></html>
+<html><body><h2>If you have Office 2007 or Sharepoint Designer 2007 installed, Greenshot can even do instant OCR of any text on the screen. Very neato.</h2></body></html>
