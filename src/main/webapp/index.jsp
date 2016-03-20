@@ -1,1 +1,1 @@
-<html><body><h2>"We need to strike. Every second we wait is another million chances they get to break the core, and broadcast the backdoor."</h2></body></html>
+<html><body><h2>The humanity we will place in the machines is the humanity we will sometimes forget ourselves.</h2></body></html>
