@@ -1,1 +1,1 @@
-<html><body><h2>@binarybits the ONLY people on PLANET EARTH that want to know about Hulk Hogan having sex are Gawker employees, I assure you.</h2></body></html>
+<html><body><h2>.@elomatreb But they should compile the Flash ON THEIR SERVER. Customer gives elements, corp puts it together with proprietary tracking code</h2></body></html>
