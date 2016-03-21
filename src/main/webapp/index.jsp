@@ -1,1 +1,1 @@
-<html><body><h2>Why do ad platforms even accept arbitrary SWF? I can edit YouTube videos with HTML5 but they can't make an online server-side ad composer?</h2></body></html>
+<html><body><h2>@binarybits the ONLY people on PLANET EARTH that want to know about Hulk Hogan having sex are Gawker employees, I assure you.</h2></body></html>
