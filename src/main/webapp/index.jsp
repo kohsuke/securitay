@@ -1,1 +1,1 @@
-<html><body><h2>.@elomatreb But they should compile the Flash ON THEIR SERVER. Customer gives elements, corp puts it together with proprietary tracking code</h2></body></html>
+<html><body><h2>Why do ad platforms even accept arbitrary SWF? I can edit YouTube videos with HTML5 but they can't make an online server-side ad composer?</h2></body></html>
