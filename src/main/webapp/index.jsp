@@ -1,4 +1,7 @@
-<html><body><h2>Casio - Efficient
-Rolex - Rich
-Apple Watch - Dude what
-Android Wear - No stop</h2></body></html>
+<html><body><h2>A person. A woman.
+The lenses found their focus.
+A blue face.
+
+Our daughter.
+
+//END</h2></body></html>
