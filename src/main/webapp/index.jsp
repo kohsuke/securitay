@@ -1,1 +1,1 @@
-<html><body><h2>RT @rosyna: Important: iOS 9.3 brings the new 2FA to ALL iCloud accounts. /cc @SwiftOnSecurity</h2></body></html>
+<html><body><h2>RT @ehsaanet: propsd #California #law:"smartphone  [...] sold or leased in California, shall be capable of being #decrypted [...]" https://…</h2></body></html>
