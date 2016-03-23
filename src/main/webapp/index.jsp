@@ -1,1 +1,1 @@
-<html><body><h2>NOTE: Per this, the "hack" the FBI is pursuing most likely NOT a cryptographic break, instead a raw-hardware password-attempt tracker bypass</h2></body></html>
+<html><body><h2>@fmanjoo I'm using the whole nootrobox stack, but I think I'm going to cancel, my mind just doesn't seem built for it 😞</h2></body></html>
