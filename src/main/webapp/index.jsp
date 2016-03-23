@@ -1,1 +1,1 @@
-<html><body><h2>@vranieri I was under impression judges have incredible powers over procedural stuff like this, can you expand on what limits them?</h2></body></html>
+<html><body><h2>RT @film_girl: But the thing is, that’s exactly what DoJ did. They said over and over, only Apple can help. But now it’s like, well maybe… …</h2></body></html>
