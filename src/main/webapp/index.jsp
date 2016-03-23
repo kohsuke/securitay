@@ -1,1 +1,1 @@
-<html><body><h2>RT @ehsaanet: propsd #California #law:"smartphone  [...] sold or leased in California, shall be capable of being #decrypted [...]" https://…</h2></body></html>
+<html><body><h2>@vranieri I was under impression judges have incredible powers over procedural stuff like this, can you expand on what limits them?</h2></body></html>
