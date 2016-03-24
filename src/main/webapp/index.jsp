@@ -1,1 +1,1 @@
-<html><body><h2>@jeffh117 it's an app it can't initiate a device wipe</h2></body></html>
+<html><body><h2>I'd like to apologize for the outburst. Microsoft and I are going to stay together and try to work it out. For the child processes.</h2></body></html>
