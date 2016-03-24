@@ -1,1 +1,1 @@
-<html><body><h2>If Linux is so stable, why are the most critical Active Directory servers always running Windows? Makes you think. 🤔</h2></body></html>
+<html><body><h2>Finally, some appreciation for my art. https://t.co/lp5H21Gf4v</h2></body></html>
