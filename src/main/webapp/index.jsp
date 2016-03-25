@@ -1,1 +1,1 @@
-<html><body><h2>🙊🙊🙊🙊 https://t.co/kxibiHPmA4</h2></body></html>
+<html><body><h2>Microsoft is going to bring @TayandYou back with an emotion regulator chip installed https://t.co/GkxCCTsYIH</h2></body></html>
