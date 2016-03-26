@@ -1,1 +1,3 @@
-<html><body><h2>RT @vexmark: China 'fake divorces' surge during housing bubbles as couples try to skirt regulations https://t.co/ERLB1eD0Pz https://t.co/4X…</h2></body></html>
+<html><body><h2>I personally don't use an email signature because it projects power. You should already know who I am.
+
+Also fuck you don't call me ever.</h2></body></html>
