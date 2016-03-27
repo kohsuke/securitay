@@ -1,1 +1,1 @@
-<html><body><h2>RT @RidiculousSheri: I was watching a commercial for a show about an unlovable loser when I realized my tv was off and it was just my refle…</h2></body></html>
+<html><body><h2>Ironically, people who build their own computers are more at risk to bootkits because they don't know to UEFI-boot the install media.</h2></body></html>
