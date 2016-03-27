@@ -1,1 +1,4 @@
-<html><body><h2>RT @marcprecipice: Maybe it's time to accept that the people who were supposed to travel from the future to change history are just not on …</h2></body></html>
+<html><body><h2>I just hacked the @nytimes paywall
+Where do I apply for a CVE
+They forgot to protect their cookies from being deleted
+Major flaw</h2></body></html>
