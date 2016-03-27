@@ -1,1 +1,1 @@
-<html><body><h2>@stevesi @ask_tweety okay. I know you have better visibility into this than I do from the trenches in my little wars. Thanks Steven.</h2></body></html>
+<html><body><h2>RT @Evanextreme: My college follows this person on Twitter https://t.co/ATITlBZ46v</h2></body></html>
