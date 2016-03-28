@@ -1,1 +1,1 @@
-<html><body><h2>This is how stuxnet bridged the airgap https://t.co/w3nhNwLKaG</h2></body></html>
+<html><body><h2>RT @shanselman: .@internetofshit https://t.co/3IKE9C4R9Y</h2></body></html>
