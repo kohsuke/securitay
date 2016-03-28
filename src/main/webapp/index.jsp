@@ -1,1 +1,1 @@
-<html><body><h2>Although SecureBoot doesn't prevent HDD modifications, it stops message appearing plus I've never seen a GPT-compatible Windows bootkit</h2></body></html>
+<html><body><h2>If someone has SecureBoot turned on, why would they install Linux? They already have Windows. That would be like spray-painting your car.</h2></body></html>
