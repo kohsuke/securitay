@@ -1,1 +1,1 @@
-<html><body><h2>Ironically, people who build their own computers are more at risk to bootkits because they don't know to UEFI-boot the install media.</h2></body></html>
+<html><body><h2>Although SecureBoot doesn't prevent HDD modifications, it stops message appearing plus I've never seen a GPT-compatible Windows bootkit</h2></body></html>
