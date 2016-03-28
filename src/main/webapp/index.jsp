@@ -1,1 +1,1 @@
-<html><body><h2>If someone has SecureBoot turned on, why would they install Linux? They already have Windows. That would be like spray-painting your car.</h2></body></html>
+<html><body><h2>Remember this next time someone tells you SecureBoot is a conspiracy to kill Linux by adding one install step. https://t.co/zsiMl4FUVG</h2></body></html>
