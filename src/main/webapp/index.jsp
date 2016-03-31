@@ -1,1 +1,1 @@
-<html><body><h2>Remember this next time someone tells you SecureBoot is a conspiracy to kill Linux by adding one install step. https://t.co/zsiMl4FUVG</h2></body></html>
+<html><body><h2>I've always wondered how the hell you even get a printer on the _Internet_. Plugging it into a DSL modem? Who? Why? https://t.co/X0sriC80WT</h2></body></html>
