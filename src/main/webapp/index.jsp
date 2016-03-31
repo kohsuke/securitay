@@ -1,1 +1,1 @@
-<html><body><h2>I've always wondered how the hell you even get a printer on the _Internet_. Plugging it into a DSL modem? Who? Why? https://t.co/X0sriC80WT</h2></body></html>
+<html><body><h2>I seriously have 30,000 tweets about Linux and Windows you can read, you'll be fine. 😘 bye https://t.co/XlGVnLaCfx</h2></body></html>
