@@ -1,1 +1,1 @@
-<html><body><h2>@james1052 I agree with developer. Any arbitrary code or filesystem manipulation of a system with user-mode password manager is game over</h2></body></html>
+<html><body><h2>Bots are interesting because of their single-sign-on ability. Need info on a customer's equipment lease? The bot already knows you're auth'd</h2></body></html>
