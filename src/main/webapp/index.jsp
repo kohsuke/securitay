@@ -1,1 +1,1 @@
-<html><body><h2>OMG ITS A KITTY 🙊 https://t.co/Pz4jekaeIb</h2></body></html>
+<html><body><h2>@james1052 I agree with developer. Any arbitrary code or filesystem manipulation of a system with user-mode password manager is game over</h2></body></html>
