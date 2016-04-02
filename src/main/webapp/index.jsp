@@ -1,3 +1,4 @@
-<html><body><h2>Fun fact: In middle school I tried to read Crime and Punishment.
+<html><body><h2>1. Complain to Apple publicly
+2. Apple hires me for an ad
 
-That was a bad idea. I still cringe when I read the word "ruble."</h2></body></html>
+Negging works. Master of media. https://t.co/4yqWjCl7mm</h2></body></html>
