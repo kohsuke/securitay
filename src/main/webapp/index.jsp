@@ -1,4 +1,1 @@
-<html><body><h2>1. Complain to Apple publicly
-2. Apple hires me for an ad
-
-Negging works. Master of media. https://t.co/4yqWjCl7mm</h2></body></html>
+<html><body><h2>RT @taylorswift13: Dogs tho. https://t.co/h0uiMM6JO2</h2></body></html>
