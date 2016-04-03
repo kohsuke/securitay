@@ -1,1 +1,2 @@
-<html><body><h2>RT @hydrajump: When @SwiftOnSecurity found out that Linux was coming to Windows https://t.co/FNB6RyJruz</h2></body></html>
+<html><body><h2>i went on a political rant and im sorry
+in my defense it was about ted cruz wanting to literally murder people</h2></body></html>
