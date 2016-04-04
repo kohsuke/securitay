@@ -1,1 +1,1 @@
-<html><body><h2>RT @mcmattness: @SwiftOnSecurity I hate when they try to make me use something newer because "it's safer." I don't care, I like asbestos an…</h2></body></html>
+<html><body><h2>No I'm not going to contact you for a quote, MY WEB BROWSER IS CONTACTING YOU FOR A QUOTE ALREADY</h2></body></html>
