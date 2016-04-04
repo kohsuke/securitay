@@ -1,2 +1,1 @@
-<html><body><h2>Who wants me to livetweet a CISSP book.
-86826368 tweets to go.</h2></body></html>
+<html><body><h2>RT @mcmattness: @SwiftOnSecurity I hate when they try to make me use something newer because "it's safer." I don't care, I like asbestos an…</h2></body></html>
