@@ -1,2 +1,1 @@
-<html><body><h2>"Dear vendor,
-SpaceX puts shit in orbit for a flat fee, send me the fucking price quote or I'm buying your ass A ONE WAY FLIGHT TO MARS."</h2></body></html>
+<html><body><h2>Next time a vendor screws around on  pricing, remind them SpaceX's website has how much they charge to SEND A SATELLITE INTO SPACE.</h2></body></html>
