@@ -1,1 +1,2 @@
-<html><body><h2>No I'm not going to contact you for a quote, MY WEB BROWSER IS CONTACTING YOU FOR A QUOTE ALREADY</h2></body></html>
+<html><body><h2>"Dear vendor,
+SpaceX puts shit in orbit for a flat fee, send me the fucking price quote or I'm buying your ass A ONE WAY FLIGHT TO MARS."</h2></body></html>
