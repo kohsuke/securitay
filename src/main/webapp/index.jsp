@@ -1,1 +1,1 @@
-<html><body><h2>(I read that idea somewhere, I didn't come up with it)</h2></body></html>
+<html><body><h2>Encrypted data is indistinguishable from random noise which means we might just be missing the decryption key for signals from deep space</h2></body></html>
