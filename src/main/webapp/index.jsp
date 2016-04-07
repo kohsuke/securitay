@@ -1,1 +1,1 @@
-<html><body><h2>RT @CulturedRuffian: Maybe I'm not addicted to my phone, maybe I'm addicted to not interacting with other people.</h2></body></html>
+<html><body><h2>.@internetofshit if you want simple non-smart remote-control plugs, I have 10 of these and they're great https://t.co/C3akMae3bO</h2></body></html>
