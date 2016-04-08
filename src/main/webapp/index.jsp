@@ -1,1 +1,2 @@
-<html><body><h2>So @JZdziarski just found his car running Linux and simulating a Windows registry hive. You might be right. https://t.co/bOUXRQcZX7</h2></body></html>
+<html><body><h2>"Never forget the six-foot-tall man who drowned crossing the stream that was average five feet deep."
+- Warren Buffett</h2></body></html>
