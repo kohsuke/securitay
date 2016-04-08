@@ -1,1 +1,1 @@
-<html><body><h2>@bizzyunderscore @RichardKenyan @codinghorror I'm saying this possibly wasn't a 1000+ sq high density facility</h2></body></html>
+<html><body><h2>So @JZdziarski just found his car running Linux and simulating a Windows registry hive. You might be right. https://t.co/bOUXRQcZX7</h2></body></html>
