@@ -1,1 +1,1 @@
-<html><body><h2>Kids these days will never know why you're not supposed to kill someone crouching and facing a corner.</h2></body></html>
+<html><body><h2>@feldpos I don't actually use the sub I bought it when I didn't have neighbors</h2></body></html>
