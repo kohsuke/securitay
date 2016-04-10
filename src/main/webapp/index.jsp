@@ -1,1 +1,1 @@
-<html><body><h2>@hacks4pancakes @secvalve @georgestarcher In a global company with many units, corralling every vendor under a hard-fail SPF is very hard</h2></body></html>
+<html><body><h2>@ravensergei Alan Turing purportedly killed himself with a cyanide-poisoned apple.</h2></body></html>
