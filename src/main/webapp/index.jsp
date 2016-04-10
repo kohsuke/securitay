@@ -1,1 +1,1 @@
-<html><body><h2>When you retweet someone with 17 followers because you know they haven't turned off Twitter email alerts yet 😈 @HeavyHDx</h2></body></html>
+<html><body><h2>Digital assistants being women just means women will rule the world.</h2></body></html>
