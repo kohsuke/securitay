@@ -1,1 +1,1 @@
-<html><body><h2>I know of an org that had to turn hard-fail SPF enforcement off because Sales complained they weren't getting mail from misconf'd customers</h2></body></html>
+<html><body><h2>These days it's freaking crazy that SPF wasn't in the SMTP RFC, but I know the history of just trying to get it off the ground at all.</h2></body></html>
