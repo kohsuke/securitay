@@ -1,1 +1,1 @@
-<html><body><h2>RT @USNINews: U.S. Naval Flight Officer Lt. Cmdr. Edward Lin Accused of Giving U.S. Secrets to China https://t.co/C5JhUj2Y6U</h2></body></html>
+<html><body><h2>Hey @twitter here's about 1 million bots you can ban. You're welcome. https://t.co/7qHcsbqXpX</h2></body></html>
