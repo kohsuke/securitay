@@ -1,1 +1,1 @@
-<html><body><h2>RT @PurpleTeaming: TempRacer – Windows Privilege Escalation Tool https://t.co/PMKFmwSPbH</h2></body></html>
+<html><body><h2>Paying a ransom because you don't have backups https://t.co/2n2Yanmhj4</h2></body></html>
