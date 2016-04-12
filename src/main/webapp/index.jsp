@@ -1,3 +1,3 @@
-<html><body><h2>Jets and NASCAR have something in common. The limiting factor isn't the machinery or technology.
-
-It is the human inside they cradle.</h2></body></html>
+<html><body><h2>"Hey follow this cool account about security."
+*2 days later"
+"You said this was about security they just post crap about machines"</h2></body></html>
