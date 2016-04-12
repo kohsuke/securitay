@@ -1,3 +1,1 @@
-<html><body><h2>"Hey follow this cool account about security."
-*2 days later"
-"You said this was about security they just post crap about machines"</h2></body></html>
+<html><body><h2>So this is why datacenter cages have their own roof 🤔 https://t.co/xwBKsjcbMM</h2></body></html>
