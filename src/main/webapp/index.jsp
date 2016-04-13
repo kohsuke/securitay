@@ -1,4 +1,1 @@
-<html><body><h2>Disable SMB1:
-Set-SmbServerConfiguration -EnableSMB1Protocol $false
-or
-HKLM\SYSTEM\CurrentControlSet\Services\LanmanServer\Parameters\SMB1=0</h2></body></html>
+<html><body><h2>Offer security advice and they will come https://t.co/dTjGJyYI0d</h2></body></html>
