@@ -1,1 +1,1 @@
-<html><body><h2>Apple Watch was released because they needed to fill the market's innovation narrative, not because it or the technology was ready yet.</h2></body></html>
+<html><body><h2>In the future we should ask that reliable 3rd parties with exploit experience audit severity of a bug. Many good people in our industry.</h2></body></html>
