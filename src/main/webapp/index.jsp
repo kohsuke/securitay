@@ -1,1 +1,1 @@
-<html><body><h2>Paying a ransom because you don't have backups https://t.co/2n2Yanmhj4</h2></body></html>
+<html><body><h2>RT @mholt6: Stop using "vulnerability" and "exploit" interchangeably. Taylor Swift @SwiftOnSecurity already went over this. http://t.co/OBY…</h2></body></html>
