@@ -1,1 +1,1 @@
-<html><body><h2>RT @mholt6: Stop using "vulnerability" and "exploit" interchangeably. Taylor Swift @SwiftOnSecurity already went over this. http://t.co/OBY…</h2></body></html>
+<html><body><h2>@MeltingIce I see a Rolex I wonder if their fake watch is actually water resistant</h2></body></html>
