@@ -1,1 +1,1 @@
-<html><body><h2>Offer security advice and they will come https://t.co/dTjGJyYI0d</h2></body></html>
+<html><body><h2>RT @JZdziarski: A “mysterious low profile hacker whose identity shall remain anonymous” sounds a lot like “we’re going to lose our case wit…</h2></body></html>
