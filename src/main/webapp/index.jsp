@@ -1,1 +1,1 @@
-<html><body><h2>RT @JZdziarski: A “mysterious low profile hacker whose identity shall remain anonymous” sounds a lot like “we’re going to lose our case wit…</h2></body></html>
+<html><body><h2>RT @rosyna: @SwiftOnSecurity @nakashimae It was also odd that *every* article saying Cellebrite cited the same newspaper in Israel as the s…</h2></body></html>
