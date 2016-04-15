@@ -1,1 +1,1 @@
-<html><body><h2>RT @PogoWasRight: Facebook isn't violating #HIPAA because it's not a HIPAA-covered entity. The hospitals, otoh....  https://t.co/qZzPud5hUz</h2></body></html>
+<html><body><h2>I don't understand why Robert De Niro thinks he's qualified to talk about vaccines. Would be like a musician talking about cyber security.</h2></body></html>
