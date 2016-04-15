@@ -1,1 +1,1 @@
-<html><body><h2>"Haha, I'm so awesome, it's not yet cost-effective to replace me with code!"</h2></body></html>
+<html><body><h2>.@saintneko Yes, even if you dump an SSD that doesn't use firmware default encryption, it doesn't keep data contiguously. Can't carve well.</h2></body></html>
