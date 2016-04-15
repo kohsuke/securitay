@@ -1,1 +1,1 @@
-<html><body><h2>I don't understand why Robert De Niro thinks he's qualified to talk about vaccines. Would be like a musician talking about cyber security.</h2></body></html>
+<html><body><h2>I just bought: 'Vogue May 2016 Issue' by Conde Nast via @amazon https://t.co/Bvhgg8rJB3</h2></body></html>
