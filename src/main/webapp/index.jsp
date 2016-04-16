@@ -1,1 +1,1 @@
-<html><body><h2>.@saintneko Yes, even if you dump an SSD that doesn't use firmware default encryption, it doesn't keep data contiguously. Can't carve well.</h2></body></html>
+<html><body><h2>RT @BrendanHoar: @SwiftOnSecurity Also ATA SANITIZE features, such as CRYPTO SCRAMBLE EXT which *explicitly* erases key. ATA SECURE ERASE *…</h2></body></html>
