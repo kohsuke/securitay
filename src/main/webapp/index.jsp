@@ -1,1 +1,1 @@
-<html><body><h2>RT @BrendanHoar: @SwiftOnSecurity Also ATA SANITIZE features, such as CRYPTO SCRAMBLE EXT which *explicitly* erases key. ATA SECURE ERASE *…</h2></body></html>
+<html><body><h2>RT @marshray: Even the most basic metadata retention and traffic analysis can defeat strong cryptography. https://t.co/3JC63HH4z6</h2></body></html>
