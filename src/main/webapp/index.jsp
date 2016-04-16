@@ -1,1 +1,5 @@
-<html><body><h2>RT @marshray: Even the most basic metadata retention and traffic analysis can defeat strong cryptography. https://t.co/3JC63HH4z6</h2></body></html>
+<html><body><h2>RT @subTee: True Vendor Call 
+Our software protects you from buffalo overflows.
+Me:Excuse me, What? o_O
+Buffalo Overflows.
+Me: OK http://t.…</h2></body></html>
