@@ -1,1 +1,1 @@
-<html><body><h2>@CopperheadSec I don't understand why they didn't hire you to help build a secure android phone</h2></body></html>
+<html><body><h2>"I know this is wrong but I'm doing it anyway"</h2></body></html>
