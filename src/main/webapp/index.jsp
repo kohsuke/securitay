@@ -1,5 +1,8 @@
-<html><body><h2>*Apple developer conference*
-"To streamline our branding we're renaming OSX to MacOS."
+<html><body><h2>#OpenSource101
+This is what a dependency tree looks like:
 
-*Debian busts in door*
-"WHOS READY FOR DITSY DORITO"</h2></body></html>
+Wayland
+|- Ubuntu
+  |- Debian
+    l- Linux
+     |- Socialism</h2></body></html>
