@@ -1,1 +1,4 @@
-<html><body><h2>If you want to follow real computer security Twitter instead of my irreverent trash, @da_667 just tweeted a bunch of #FF that I also follow.</h2></body></html>
+<html><body><h2>One time I actually did that in a meeting.
+"Oh, I know the guy who runs that at Microsoft, I'll ask him for you."
+"How?"
+"It's complicated."</h2></body></html>
